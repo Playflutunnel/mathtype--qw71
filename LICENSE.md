@@ -1,4 +1,4 @@
-# 
+# MathType for PC | MathType for Windows secure Plugin: matrix-operations & statistical-analysis is the best MathType for PC | MathType for Windows plugin, featuring
 
 
 
